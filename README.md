@@ -1,1 +1,1 @@
-My first readme
+Beauty is making a headway
